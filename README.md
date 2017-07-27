@@ -1,4 +1,4 @@
-### Minecraft Premium
+### Minecraft Premium Account Generator
 
 #### About
 ---
